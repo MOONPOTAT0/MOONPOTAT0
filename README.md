@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MOONPOTAT0 :D
+- 👀 I’m interested in Harry Potter, Tennis, and my touchhbar cat
+- 🌱 I’m currently learning how to solve volume for 3d shapes
+- 📫 How to reach me fayeyang108@gmail.com
+- She/Her
+- Have a great day :)
